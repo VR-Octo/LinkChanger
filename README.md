@@ -1,1 +1,1 @@
-like more maps and stuff and tricks
+https://discord.gg/XYgTUZP7Er
